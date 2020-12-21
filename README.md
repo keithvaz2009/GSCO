@@ -1,1 +1,1 @@
-# GSCO
+# Global Safety Car Organisation
